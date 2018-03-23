@@ -1,1 +1,1 @@
-<a href="https://cl.ly/1m0I2d2u3S3b" target="_blank"><img src="https://dha4w82d62smt.cloudfront.net/items/2a2F3N3I193l3q0o3Y16/Screen%20Recording%202018-03-23%20at%2005.45%20PM.gif" style="display: block;height: auto;width: 80%;"/></a>
+<a href="https://cl.ly/470r2v2l2p3p" target="_blank"><img src="https://dha4w82d62smt.cloudfront.net/items/1C452t161Y3e3Z1X3G2Z/Screen%20Recording%202018-03-23%20at%2005.50%20PM.gif" style="display: block;height: auto;width: 100%;"/></a>
